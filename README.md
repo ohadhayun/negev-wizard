@@ -4,9 +4,4 @@
 "# negev-wizard" 
 asdaszxc
 fcdfg
-sdfadfasdfsasd
-s
-sadasd
-sdasdsdsd
-asdasasdasdasdasdasd
 ad matai
